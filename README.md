@@ -1,2 +1,2 @@
 # Brayan-Wesley
-![](https://tenor.com/bHLgf.gif)
+(https://tenor.com/bHLgf.gif)
